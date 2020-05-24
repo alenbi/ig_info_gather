@@ -1,9 +1,9 @@
 
 #####################################
-# BY KADA			    #
+# BY Alamban Hacker 	         n  #
 # TEXT ME FOR MORE TOOLS :	    #
-#       TELEGRAM : @Ghost7_Kada     #
-#       FACEBOOK : FB.COM/ZXLLL     #
+#      TELEGRAM : @alamban_hacker   #
+#                                   #
 #                                   #
 # Never use this tool for CRACKING* #
 #####################################
